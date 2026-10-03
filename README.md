@@ -1,7 +1,7 @@
 # Guild Master: Autonomous GameFi Community Intelligence
 
 **Author:** Tamer Kaleander  
-**Contact:** [Email] | [Telegram Handle]  
+**Contact:** tamerkaleander@gmail.com | @tamerkaleander (Telegram)  
 **Platform:** HelloMinds by Animoca Brands  
 
 ## 🚀 Overview
